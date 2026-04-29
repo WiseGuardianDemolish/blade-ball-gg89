@@ -1,4 +1,4 @@
-
+automatic blade ball Script is the best blade ball Script, featuring auto-collect and custom skins. Safe and powerful for all your needs.
 
 
 
